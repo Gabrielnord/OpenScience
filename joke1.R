@@ -1,0 +1,1 @@
+#Why do SCUBA divers fall backwards into the sea? Because if they fell forward they would still be in the boat!
